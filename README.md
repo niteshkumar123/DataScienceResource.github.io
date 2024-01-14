@@ -1,1 +1,1 @@
-# DataScienceResource.github.io
+# niteshkumar123.github.io
